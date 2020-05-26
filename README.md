@@ -1,4 +1,4 @@
-## Steps
+## Steps
 
 > Step 1
 
